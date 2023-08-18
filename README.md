@@ -4,4 +4,4 @@ Stats might be inaccurate. Click the picture to get real stats? ¯\_(ツ)_/¯
 
 [![My-banner](https://cdn.discordapp.com/attachments/845065484315131924/1142210542459682916/IMG_9142.png)](https://polysphere.cc/https)  
 [![My-banner](https://cdn.discordapp.com/attachments/845065484315131924/1142210537548161104/IMG_9143.png)](https://polysphere.cc/https) 
-[![My-banner](https://cdn.discordapp.com/attachments/845065484315131924/1142220197277741128/IMG_9155.png)](https://polysphere.cc/https) 
+[![My-banner](https://cdn.discordapp.com/attachments/845065484315131924/1142221296797761566/IMG_9157.jpg)](https://polysphere.cc/https) 
